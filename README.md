@@ -1,2 +1,2 @@
 # Jebin1210
-Hi al, This is my github profile
+Hi all, This is my github profile
